@@ -1,5 +1,5 @@
 
-# 👋 Hi, I'm NoBrand
+# 👋 Hi, I'm twopercenz
 
 ### High school student · Future developer · Band lover 🎸
 
